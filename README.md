@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @Itzdhananjay
-- 👀 I’m interested in graphic designing 
+- 👀 I’m interested in graphic designing and web development.
+ 
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on any company.
 - 📫 How to reach me mob. No. 7877780596 
